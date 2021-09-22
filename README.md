@@ -1,0 +1,1 @@
+# 110000-Kurdish-Kurmanji-Bible-Sermons-Parallel-Commentaries
